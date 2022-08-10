@@ -9,7 +9,7 @@
 
 - 📨 How To Contact Me **sayyedmudassarakbar786@gmail.com**
 
-- 📄 Where Are From 🤐 [https://Pakistan.com](https://Pakistan.com)
+- 📄 Where Are From 🤐 [Pakistan](Pakistan)
 
 - ⚡ Most Mean Full Word **Think Positive**
 
